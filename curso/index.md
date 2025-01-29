@@ -1,3 +1,5 @@
 Sergio Michel Pérez Mendoza (Guadalajara, Jalisco, México; 26 de enero de 1990), también conocido como Checo Pérez, es un piloto de automovilismo mexicano. Actualmente es miembro de la Escudería Telmex.1​ Entre 2021 y 2024 fue piloto de Red Bull en Fórmula 1, donde obtuvo sus mejores resultados en el campeonato, con un subcampeonato en 2023, un tercer puesto en 2022 y dos cuartos lugares en 2020 (con Racing Point) y 2021.2​ Comenzó su carrera en 2004; en la Fórmula 3 Británica fue campeón de clase nacional en 2007. En 2009 debutó en GP2 Series y al año siguiente fue subcampeón.
 
 Fue miembro de la Academia de pilotos de Ferrari hasta 2012. Hizo su debut en Fórmula 1 con el equipo Sauber durante la temporada 2011, donde obtuvo su primer podio en el Gran Premio de Malasia de 2012. Debido a su corta edad y buen desempeño, parte de la prensa lo apodó «El niño prodigio mexicano».3​ Se unió a McLaren para la temporada 2013, pero sin lograr ningún podio y finalizando undécimo en la clasificación.4​
+
+jalo
