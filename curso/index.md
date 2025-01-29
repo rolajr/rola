@@ -3,3 +3,4 @@ Sergio Michel Pérez Mendoza (Guadalajara, Jalisco, México; 26 de enero de 1990
 Fue miembro de la Academia de pilotos de Ferrari hasta 2012. Hizo su debut en Fórmula 1 con el equipo Sauber durante la temporada 2011, donde obtuvo su primer podio en el Gran Premio de Malasia de 2012. Debido a su corta edad y buen desempeño, parte de la prensa lo apodó «El niño prodigio mexicano».3​ Se unió a McLaren para la temporada 2013, pero sin lograr ningún podio y finalizando undécimo en la clasificación.4​
 
 jalo
+cambio de la nueva rama
